@@ -1,0 +1,4 @@
+- hello i am 7he4og
+- i have a game studio called spaghetti sauce studios
+- we are currently looking for game developers of any skill level and type
+- please fill out this form to join: https://docs.google.com/forms/d/e/1FAIpQLSdtOxi9oiBFIgUIPfQem1rOOTQVCkOmVnNMSn32sLds3qkSfg/viewform?usp=sf_link
